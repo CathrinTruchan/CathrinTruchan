@@ -9,7 +9,8 @@ Some of my **favorite activities** are:
 - climbing and
 - cycling 
 
-
+### That's me:
+![picture of me](https://avatars.githubusercontent.com/u/111566392?s=400&u=d4061050893b6b2924075f9b0e8fb804ff09ec6d&v=4 "profile picture Cathrin Truchan")
 
 
 
