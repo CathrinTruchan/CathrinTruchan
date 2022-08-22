@@ -19,3 +19,5 @@ Some of my **favorite activities** are:
 - climbing and
 - cycling 
 
+You can also find me on [LinkedIn](https://www.linkedin.com/in/cathrin-truchan-627818214/).
+
